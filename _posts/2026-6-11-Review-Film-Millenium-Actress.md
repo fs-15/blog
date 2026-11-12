@@ -2,10 +2,11 @@
 layout: post
 title: Review Millenium Actress 2001
 ---
-![Millenium Actress](https://a.ltrbxd.com/resized/film-poster/2/9/8/8/4/29884-millennium-actress-0-200-0-300-crop.jpg?v=7c3df2e20f)
 Millenium Actress berfokus pada cerita Chiyoko Fujiwara, seorang aktris legendaris yang mendadak pensiun dan mengasingkan diri dari publik selama 30 tahun. Seorang sutradara Genya Tachibana dan juru kameranya berhasil menemui Chiyoko untuk mewawancarainya dan memberikan sebuah kunci yang pernah hilang milik seorang laki-laki misterius.
 
 Saat Chiyoko memegang kuncinya, ia mulai menceritakan kisah hidupnya. Yang paling menarik adalah ingatan masa lalu Chiyoko menyatu dengan peran-peran film yang pernah ia mainkan lintas generasi dari film era samurai, era perang dunia, dan era fiksi ilmiah. Dengan penyutradaraan khas Satoshi Kon lumayan sulit membedakan batas antara realitas dan fantasi seperti film sebelumnya yakni Perfect Blue. Semua dikemas sangat rapi saat perpindahan antar cerita dan terasa sangat mulus seperti "film di dalam film" membuat penonton seolah ikut hanyut kedalamnya bersama dua jurnalis yang mewawancarainya.
+
+![Millenium Actress](https://a.ltrbxd.com/resized/film-poster/2/9/8/8/4/29884-millennium-actress-0-200-0-300-crop.jpg?v=7c3df2e20f)
 
 Animasi buatan Madhouse sangat indah untuk film bergaya dokumenter dan untuk tribute di film ini. Didukung dengan lagu yang dengan nuansa epik dan melankolis oleh Susumu Hirasawa. Sebuah kombinasi yang puistis dan emosional.
 

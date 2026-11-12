@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Review Film Millenium Actress 2001
+title: Review Film Millennium Actress 2001
 ---
 Millenium Actress berfokus pada cerita Chiyoko Fujiwara, seorang aktris legendaris yang mendadak pensiun dan mengasingkan diri dari publik selama 30 tahun. Seorang sutradara Genya Tachibana dan juru kameranya berhasil menemui Chiyoko untuk mewawancarainya dan memberikan sebuah kunci yang pernah hilang milik seorang laki-laki misterius.
 
